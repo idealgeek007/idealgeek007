@@ -13,7 +13,6 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1dKW_PkEV3xienrsmwE3IVuGB3pu6NdUW/view?usp=sharing](https://drive.google.com/file/d/1dKW_PkEV3xienrsmwE3IVuGB3pu6NdUW/view?usp=sharing)
 
-- ⚡ Fun fact **I play a lot of Valorant**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
