@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nagarajkj7@gmail.com**
 
-- 🌟 Check out = [Decisio.vercel.app]
+- 🌟 Check out my latest project [Decisio](https://decisio.vercel.app)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
